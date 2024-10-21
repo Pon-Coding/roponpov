@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me
 Mobile App Developer
 
 
